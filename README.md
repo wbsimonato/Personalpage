@@ -3,6 +3,7 @@ Fique por dentro de todas as atualizações sobre o aniversário e interaja com 
 
 Clique aqui para entrar no grupo!
 https://chat.whatsapp.com/KTCodvbqBVuKxEeOGGXakA
+
 Local do Evento
 O evento será realizado no seguinte local:
 Veja no Google Maps
